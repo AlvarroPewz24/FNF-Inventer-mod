@@ -1,6 +1,6 @@
 ![](20221024_184813.png)
 
-> a mod where you have to rap-battling with other monster in different world
+> a mod where you have to rap-battling with other mysterious monster in different world
 
 [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) wich is very unstable
 
