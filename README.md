@@ -12,4 +12,6 @@ no screenshots but here are the
 
 (the link is not working cause the page isn't available for public)
 
+again, when you download the beta i recommend you hold up until we reach the stable build
+
 -------------------
