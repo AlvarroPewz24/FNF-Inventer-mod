@@ -2,7 +2,7 @@
 
 > a mod where you have to rap-battling with other mysterious monster in different world
 
-[download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) wich is very unstable
+[download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) which is very unstable
 
 --------------------
 no screenshots but here are the
