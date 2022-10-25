@@ -10,7 +10,7 @@ no screenshots but here are the
 
 ![](20221024_190235.png)
 
-NOTICE: the link is not working cause the page isn't available for public, and don't mind the release date it's still a plan
+NOTICE: the link is not working cause the page isn't available cuz i dont created it (just a plan-site), and don't mind the release date it's still a plan
 
 -------------------
 
