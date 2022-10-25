@@ -1,17 +1,18 @@
 ![](20221024_184813.png)
 
-> a mod where you have to rap-battling with other mysterious monster in different world
+> an un-finished mod (Inventer which... uh.) with huuuuge plans on it
+(this mod has no point cuz it is just still plans)
 
-#### you can [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) which is very unstable
+you can't [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) which is very unstable
 
 no screenshots but here are the
 ## Poster
 
 ![](20221024_190235.png)
 
-(the link is not working cause the page isn't available for public)
+NOTICE: the link is not working cause the page isn't available for public, and don't mind the release date it's still a plan
 
-again, when you download the beta i recommend you hold up until we reach the stable build
+again, when you download the beta i recommend you hold up until we reach the stable build (useless)
 
 -------------------
 
