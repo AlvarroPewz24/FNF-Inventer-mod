@@ -1,6 +1,6 @@
 ![](20221024_184813.png)
 
-> an un-finished mod (Inventer which... uh.) with huuuuge plans on it
+> an un-finished mod that named INVENTER or just INVENTS with huuuuge plans on it
 (this mod has no point cuz it is just still plans)
 
 you can't [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) which is very unstable
@@ -11,8 +11,6 @@ no screenshots but here are the
 ![](20221024_190235.png)
 
 NOTICE: the link is not working cause the page isn't available for public, and don't mind the release date it's still a plan
-
-again, when you download the beta i recommend you hold up until we reach the stable build (useless)
 
 -------------------
 
@@ -109,4 +107,4 @@ As for Mac, 'lime test mac -debug' should work, if not the internet surely has a
 - [Command line basics](https://ninjamuffin99.newgrounds.com/news/post/1090480)
 
 -----------------------
-that is the original game desc
+this mod is just a plan
