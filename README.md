@@ -13,7 +13,10 @@ no screenshots but here are the
 NOTICE: the link is not working cause the page isn't available cuz i dont created it (just a plan-named site), and don't mind the release date it's still a plan
 
 ### Credits / shoutouts
+
+
 me - ideas?
+
 no more person - people who ****** me
 
 -------------------
