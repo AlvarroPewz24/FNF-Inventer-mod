@@ -4,10 +4,9 @@
 
 you can't [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) which is very unstable
 
-no screenshots but here are the
-## Poster
+### Poster
 
-![](20221024_190235.png)
+![](20221027_153805.png)
 
 NOTICE: the link is not working cause the page isn't available cuz i dont created it (just a plan-named site), and don't mind the release date it's still a plan
 
