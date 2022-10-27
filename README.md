@@ -10,10 +10,8 @@ NOTICE: the link is not working cause the page isn't available cuz i dont create
 
 ### Credits / shoutouts
 
-
-me - ideas?
-
-no more person - people who ****** me
+• me - ideas?
+• no more person - people who ****** you
 
 -------------------
 
