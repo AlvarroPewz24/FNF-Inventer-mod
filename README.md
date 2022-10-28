@@ -3,7 +3,7 @@
 
 ![](20221024_184813.png)
 
-> an un-finished mod that named INVENTER or just INVENTS with ~huuuuge plans on it~ but, this mod has no point cuz it is still just a ~plan~
+> an un-finished mod that named INVENTER or just INVENTS with ~huuuuge plans on it but, this mod has no point cuz it is still just a plan~
 
 you can't [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) which is very unstable
 
