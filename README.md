@@ -9,7 +9,7 @@ you can't [download the beta here](https://www.youtube.com/watch/dQw4w9WgXcQ) wh
 
 btw the info, I'll just put in here
 
-![](20221028_132321.png)
+![](20221028_132351.png)
 
 NOTICE: ~the link is not working cause the page isn't available cuz i dont created it (just a plan-named site), and don't mind the release date it's still a plan~
 
